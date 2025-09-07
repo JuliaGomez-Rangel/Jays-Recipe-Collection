@@ -11,7 +11,9 @@
 2. You can use saeujeot as is or finely chopped. This is very salty, so use 2 teaspoons first and add more if needed.
 3. Heat a pan with a tablespoon of cooking oil over medium high heat. Add the zucchini, garlic and saeujeot (or salt or fish sauce) to the pan. Cook for 2 to 3 minutes, stirring well. Add 2 tablespoons of water to the pan while stir frying. You can add another spoon or two of water if the pan is dry.
 4. Add the scallion, sesame oil and sesame seeds. Continue to cook until the zucchini is softened and turns translucent, about 2 to 3 minutes. Do not overcook. Taste and add more salted shrimp or salt if necessary.
-
 ## Pair with
+- Hot white rice
+## Thoughts
+Yeah this was great. I'd eat it on it's own as a snack. Really easy to prepare too. 
 
 Source: https://www.koreanbapsang.com/hobak-bokkeum-stir-fried-zucchini/

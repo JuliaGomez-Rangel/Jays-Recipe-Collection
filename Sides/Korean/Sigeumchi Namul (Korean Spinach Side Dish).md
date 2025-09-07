@@ -14,5 +14,8 @@
 4. Add the remaining ingredients and mix everything well by hand, loosening/separating the spinach pieces that have been clumped up together. It will take about 10 minutes for the flavor of the seasonings to seep into the spinach.
 
 ## Pair with
+- Hot white rice (?)
+## Thoughts
+I did not expect to like this because it is a dish served cold and I generally dislike cold food but this was good. I really like it. Really fast and easy to make too.
 
 Source: https://www.koreanbapsang.com/sigeumchi-namul-korean-spinach-side/
