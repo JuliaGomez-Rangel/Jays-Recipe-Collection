@@ -29,5 +29,6 @@
 ## Notes
 1. Kofta is commonly known as Kabob (in the US) and Kebab (in europe), despite Kebab being the name given to grilled pieces of whole meat and not ground meat (ground is always called Kofta). In Turkey the rules regarding naming are also different.
 2. If you want to make an approximation to Egyptian Hawawshi, add some more chilli flakes, baharat and two finely diced tomatoes
+3. You can sub the pomegranate molasses with a balsamic vinegar reduction (https://www.reddit.com/r/AskCulinary/comments/6srhx1/is_there_a_suitable_alternative_to_pomegranate/). If you choose to reduce to the balsamic vinegar yourself, be cautious because it goes from good to burnt very quickly. You can also just buy balsamic vinegar reduction.
 
 Source: https://www.reddit.com/r/Cooking/comments/img2m6/youve_had_grilled_cheese_sandwiches_but_have_you/
