@@ -9,7 +9,7 @@
 - 1/2 Tsp Baharat (this is a Middle Eastern spice blend, but if you don't have this you can use all spice instead)
 - 1/4 Tsp Black Pepper
 - 1/4 Tsp Cayenne or chilli flakes 1/8 Tsp Cinnamon
- -2 Tbsp Olive oil for brushing the bread
+- 2 Tbsp Olive oil for brushing the bread
 ## Instructions
 ### To make the meat filling:
 1. Add your Onion and parsley to a food processor or blender, and process till very finely chopped
